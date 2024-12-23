@@ -1,6 +1,6 @@
 Hi🤚🏽, I'm Osvaldo Beto (Software Developer)🙂
 
-## Ways to contact 📱: +244 930 649 899 | osvaldogui744@gmail.com
+## Ways to contact 📱: +244 972 779 617 | osvaldogui744@gmail.com
 
 [![Blog](https://img.shields.io/website-up-down-green-red/http/cv.lbesson.qc.to.svg/)](https://osvaldobeto.com)
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/osvaldo-beto-a89850232/)
