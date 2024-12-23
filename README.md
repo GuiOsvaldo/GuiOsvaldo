@@ -32,7 +32,7 @@ DATABASE MANAGER ✍🏽
 
 Technology student at the UGS | Systems Analyst | Fullstack Developer| 
 
-+244 930 649 899 📱
++244 972 779 617 📱
 
 ## Eu amo desafio.
 
